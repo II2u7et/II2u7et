@@ -2,7 +2,7 @@
 - 👀 I’m interested in analysing, exploring new tech and solving problems.
 - 🌱 I’m currently learning system engineering.
 - 💞️ I’m looking to collaborate on any great venture.
-- 📫 How to reach me through this email: ph.hogphuc@gmail.com (yes the word "hong" without letter 'n')
+- 📫 Reach me through this email: ph.hogphuc@gmail.com (yes, the word "hong" without letter 'n')
 
 Thank you and nice to meet you!
 
