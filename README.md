@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on any great venture.
 - 📫 Reach me through this email: hongphuc.pham@outlook.com
 
-Thank you and nice to 3-meet you!
+Thank you and nice to e-meet you!
